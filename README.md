@@ -1,0 +1,5 @@
+- 👋 Hi, I’m skopi
+- 📫 How to reach me
+- Here u can find my discord
+- -> https://e-z.bio/skopi <-
+- Feel free to add me
